@@ -7,7 +7,7 @@ in the BNTU. Recently, I have been studying web programming to try myself as a w
 
 My contact info:
 
-  - My phone number:
+  - My phone number: +375 29 206 10 65
  
   - My email: kanstantsin.stasevich@gmail.com
 
